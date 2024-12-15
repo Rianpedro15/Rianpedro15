@@ -1,4 +1,4 @@
-**Sobre mim, que sou eu, porque eu fiz eu**
+Mim fala sobre mim :>
 
 ❄️⛄🎄🧊🧣🐻‍❄️❄️
 
@@ -7,6 +7,7 @@
 - SP📍
 - 🏫 - Terceirão
 - Conhecendo programação 💻
+- 🎧Goodnight & Deriva | [oShaman](https://open.spotify.com/intl-pt/artist/3PJUNKtVgEfUKj67HhRY2X?si=ybwvUeBjR8uo1lJ4WuLoig)
 - Hobbies : Livros📚, Jogos🎮, Estudos🔍
 
 **Contato**📞
