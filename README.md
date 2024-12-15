@@ -1,10 +1,19 @@
-- 👋 Hi, I’m @Rianpedro15
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+**Sobre mim, que sou eu, porque eu fiz eu**
 
-<!---
-Rianpedro15/Rianpedro15 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+❄️⛄🎄🧊🧣🐻‍❄️❄️
+
+- Rian Pedro
+- 17y🧁
+- SP📍
+- 🏫 - Terceirão
+- Conhecendo programação 💻
+- Hobbies : Livros📚, Jogos🎮, Estudos🔍
+
+**Contato**📞
+
+📫rianpedro198@gmail.com
+
+📷[@rp.l1ma](https://www.instagram.com/rp.l1ma/profilecard/?igsh=ZmN0eWR3dngxeTBi)
+
+
+![](https://i.gifer.com/NyDe.gif)
