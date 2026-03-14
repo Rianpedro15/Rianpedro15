@@ -3,9 +3,9 @@ Mim fala sobre mim :>
 ❄️⛄🎄🧊🧣🐻‍❄️❄️
 
 - Rian Pedro
-- 17y🧁
+- 18y🧁
 - SP📍
-- 🏫 - Terceirão
+- 🏫 - CIENCIA DA COMPUTAÇÃO
 - Conhecendo programação 💻
 - 🎧Goodnight & Deriva | [oShaman](https://open.spotify.com/intl-pt/artist/3PJUNKtVgEfUKj67HhRY2X?si=ybwvUeBjR8uo1lJ4WuLoig)
 - Hobbies : Livros📚, Jogos🎮, Estudos🔍
